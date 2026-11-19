@@ -32,6 +32,7 @@ Công việc hằng ngày của tôi là soạn thảo, rà soát hợp đồng 
 
 <h3> ✍️ Bài viết mới </h3>
 
+- [Gửi giấy đòi nợ cho Quản tài viên: 15 ngày quyết định quyền lợi của chủ nợ](https://huypham0504.github.io/blog/gui-giay-doi-no-cho-quan-tai-vien)
 - [Hướng dẫn chủ nợ nộp đơn yêu cầu mở thủ tục phá sản theo Luật Phục hồi, phá sản 2025](https://huypham0504.github.io/blog/huong-dan-chu-no-nop-don-yeu-cau-mo-thu-tuc-pha-san)
 
 <h3> 🤝🏻 Liên hệ </h3>
