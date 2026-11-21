@@ -21,7 +21,6 @@ Công việc hằng ngày của tôi là soạn thảo, rà soát hợp đồng 
 | 🏛️ | **Tố tụng dân sự** | Soạn đơn khởi kiện, chuẩn bị tài liệu, chứng cứ, tham gia tố tụng cùng luật sư |
 | 📝 | **Hợp đồng & văn bản pháp lý** | Soạn thảo, rà soát hợp đồng và văn bản theo yêu cầu khách hàng |
 | 📉 | **Phục hồi & phá sản** | Hỗ trợ Quản tài viên, Hội nghị chủ nợ, xác minh khoản nợ |
-| 📜 | **Thừa phát lại** | Tư vấn và soạn thảo vi bằng, lưu trữ hồ sơ vi bằng |
 
 <h3> 💼 Kinh nghiệm </h3>
 
