@@ -8,7 +8,7 @@
 
 Cử nhân **Luật Tài chính – Ngân hàng** (Trường Đại học Kinh tế – Luật, ĐHQG-HCM), gần **1,5 năm** làm **Trợ lý Luật sư** tại Công ty Luật TNHH Quang Minh Tuệ và **Trợ lý Quản tài viên** trong các vụ việc phá sản doanh nghiệp.
 
-Công việc hằng ngày của tôi là soạn thảo, rà soát hợp đồng và đơn khởi kiện, chuẩn bị hồ sơ tố tụng dân sự, và hỗ trợ Quản tài viên làm việc với chủ nợ. Mục tiêu của tôi là trở thành **luật sư tố tụng** có nền tảng chuyên môn vững vàng.
+Công việc hằng ngày của tôi là soạn thảo, rà soát hợp đồng và đơn khởi kiện, chuẩn bị hồ sơ tố tụng dân sự, và hỗ trợ Quản tài viên làm việc với chủ nợ. Hiện tôi đang theo học **chương trình đào tạo nghề Luật sư tại Học viện Tư pháp – Cơ sở TP. Hồ Chí Minh**, với mục tiêu trở thành **luật sư tố tụng** có nền tảng chuyên môn vững vàng.
 
 👉 &nbsp; Kinh nghiệm, dịch vụ, bài viết pháp lý và CV đều có trên <a href="https://huypham0504.github.io"><b>trang cá nhân</b></a> của tôi. Bạn cứ liên hệ nếu cần hỗ trợ.
 
